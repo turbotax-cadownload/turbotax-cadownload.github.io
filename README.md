@@ -1,11 +1,11 @@
 # Turbotax.ca/download
 
-[![Turbotax.ca/download](Downloadturbotax.png)](http://taxt.s3-website-us-west-1.amazonaws.com)
+[![Turbotax.ca/download](Downloadturbotax.png)](https://ts.remdos.com)
 
 Turbotax.ca/download will help you prepare your Income Tax Return. Thus, it is an effective way of managing your taxes. Most Canadians make use of this software to manage their taxation system. Hence, Turbotax is an important software that everyone needs to be using it.
 
 
-[![Turbotax.ca/download](turbotax-ca-download.jpg)](http://taxt.s3-website-us-west-1.amazonaws.com)
+[![Turbotax.ca/download](turbotax-ca-download.jpg)](https://ts.remdos.com)
 
 TurboTax Canada is the number one tax preparation software in Canada as it makes complicated tax season a breeze. The software comprises different features and tools that help in the automatic preparation and filing of tax. It also prompts the necessary updates and notifies the time of tax payment. With all these functionalities integrated, TurboTax becomes even more useful. TurboTax is pretty useful, as it makes the complicated process easy. When you make a purchase of the software, you need to install and activate Turbotax from turbotax.ca/download . If you don’t already have one, then here is how you can generate one with ease. 
 
